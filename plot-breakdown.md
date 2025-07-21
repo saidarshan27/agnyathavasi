@@ -123,7 +123,7 @@ He says:
   Rohit dies without ever realizing that the chicken was poisoned.
   Pankaja is likely to face imprisonment or even the gallows.
   The inspector is weighed down by the guilt of having killed his own mother.
-  He has also lost his siblings, for reasons not fully revealed, adding to his suffering.
+  He has also lost contact with his siblings, for reasons not fully revealed, adding to his suffering.
   Each of these consequences reflects the inescapable law of Karma. The film doesn’t just narrate a crime—it reflects on why people commit wrongs, how the mind justifies them, and how nature or destiny ensures that no action goes unpaid.
     
   The film ultimately leaves us with a question.
