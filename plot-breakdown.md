@@ -116,45 +116,39 @@ He says:
 * Inspector cries and says: *“There was no other option. I did it for the good of my siblings.”*
 * *"They all left me, I am suffering for the horrendous act, I have become a "onti pishachi"".*
 
-The writer gives us a rich subtext, suggesting that the core theme of the story is the human mind and its craving—both for intellectual superiority and sensory pleasures. At its heart, the film explores a profound question: What made Rama touch Ahalya's feet? It becomes a meditation on forgiveness, inviting the audience to ask themselves the same—Should we forgive Raghu’s character, the inspector?
-
-All the main characters in the story symbolically represent the Arishadvarga—Kama (lust), Krodha (anger), Moha (delusion), Lobha (greed), Mada (pride), and Matsarya (jealousy). These six are considered the internal enemies of the human being in Indian philosophy. Most human actions are driven by one or more of these, and the spiritual path is said to involve overcoming them.
-
-The story is a fully human tale, portraying how succumbing to these inner enemies inevitably leads to one’s downfall. No character walks away unpunished:
-
-Rohit dies without ever realizing that the chicken was poisoned.
-
-Pankaja is likely to face imprisonment or even the gallows.
-
-The inspector is weighed down by the guilt of having killed his own mother.
-
-He has also lost his siblings, for reasons not fully revealed, adding to his suffering.
-
-Each of these consequences reflects the inescapable law of Karma. The film doesn’t just narrate a crime—it reflects on why people commit wrongs, how the mind justifies them, and how nature or destiny ensures that no action goes unpaid.
+# 15. Conclusion
+  The writer gives us a rich subtext, suggesting that the core theme of the story is the human mind and its craving—both for intellectual superiority and sensory pleasures. At its heart, the film explores a profound question: What made Rama touch Ahalya's feet? It becomes a meditation on forgiveness, inviting the audience to ask themselves the same—Should we forgive Raghu’s character, the inspector?
+  All the main characters in the story symbolically represent the Arishadvarga—Kama (lust), Krodha (anger), Moha (delusion), Lobha (greed), Mada (pride), and Matsarya (jealousy). These six are considered the internal enemies of the human being in Indian philosophy. Most human actions are driven by one or more of these, and the spiritual path is said to involve overcoming them.
+  The story is a fully human tale, portraying how succumbing to these inner enemies inevitably leads to one’s downfall. No character walks away unpunished:
+  Rohit dies without ever realizing that the chicken was poisoned.
+  Pankaja is likely to face imprisonment or even the gallows.
+  The inspector is weighed down by the guilt of having killed his own mother.
+  He has also lost his siblings, for reasons not fully revealed, adding to his suffering.
+  Each of these consequences reflects the inescapable law of Karma. The film doesn’t just narrate a crime—it reflects on why people commit wrongs, how the mind justifies them, and how nature or destiny ensures that no action goes unpaid.
+    
+  The film ultimately leaves us with a question.
   
-The film ultimately leaves us with a question.
-
-There are **two murders** in the narrative—
-
-1. **Pankaja’s murder of Srinivasaiah**
-2. **Inspector’s murder of his own mother**
-
-Pankaja’s act is driven by **Kāma** and **Moha**—her attachment and obsession with Arun. Rohit, too, poisons the chicken out of **Lobha** and **Mātsarya**—jealousy and greed. But Rohit is punished immediately; he suffers for it then and there.
-
-Pankaja, by the end, may be sentenced—to jail or the gallows.  
-But **Inspector** has been silently suffering for **25 years**, never having revealed that it was he who killed his own mother.
-
-So the film poses a deep question:
-
-**Is Inspector punished or not?**
-
-Can we call any act by itself Dharma or Adharma in isolation?  
-The answer lies in *context*. There’s a story from the **Mahabharata**—a sage who had vowed never to lie, sees people hiding from thieves in the bushes. The thieves ask him where they went. Bound by his vow, the sage tells the truth. The people are found and killed.  
-When the sage dies, he is sent to **hell**, and the reason given is that his *truthfulness led to Adharma*—despite it being a 'virtuous' act in isolation.
-
-This is the same argument that surrounds the entire **battle of Kurukshetra**.  
-Krishna plans and orchestrates the death of every key player using deceit. Even the Pandavas commit acts of Adharma **to establish Dharma**. But that doesn’t mean they go unpunished—*they, too, suffer in hell after death for their actions*.
-
-So, in my view, the film does not spoon-feed a message.  
-It presents a sequence of events.  
-And in doing so, it **asks us**: *What is Dharma? What is Adharma? Who truly suffers? And who is punished?Who should be forgiven?*
+  There are **two murders** in the narrative—
+  
+  1. **Pankaja’s murder of Srinivasaiah**
+  2. **Inspector’s murder of his own mother**
+  
+  Pankaja’s act is driven by **Kāma** and **Moha**—her attachment and obsession with Arun. Rohit, too, poisons the chicken out of **Lobha** and **Mātsarya**—jealousy and greed. But Rohit is punished immediately; he suffers for it then and there.
+  
+  Pankaja, by the end, may be sentenced—to jail or the gallows.  
+  But **Inspector** has been silently suffering for **25 years**, never having revealed that it was he who killed his own mother.
+  
+  So the film poses a deep question:
+  
+  **Is Inspector punished or not?**
+  
+  Can we call any act by itself Dharma or Adharma in isolation?  
+  The answer lies in *context*. There’s a story from the **Mahabharata**—a sage who had vowed never to lie, sees people hiding from thieves in the bushes. The thieves ask him where they went. Bound by his vow, the sage tells the truth. The people are found and killed.  
+  When the sage dies, he is sent to **hell**, and the reason given is that his *truthfulness led to Adharma*—despite it being a 'virtuous' act in isolation.
+  
+  This is the same argument that surrounds the entire **battle of Kurukshetra**.  
+  Krishna plans and orchestrates the death of every key player using deceit. Even the Pandavas commit acts of Adharma **to establish Dharma**. But that doesn’t mean they go unpunished—*they, too, suffer in hell after death for their actions*.
+  
+  So, in my view, the film does not spoon-feed a message.  
+  It presents a sequence of events.  
+  And in doing so, it **asks us**: *What is Dharma? What is Adharma? Who truly suffers? And who is punished?Who should be forgiven?*
